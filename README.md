@@ -1,1 +1,1 @@
-# probability-theory-and-mathematical-statistics
+# для Теории диплом помог), по сути в нем писал то же самое
